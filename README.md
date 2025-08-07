@@ -1,16 +1,13 @@
-## Hi there 👋
+<p align="center">
+  <h4 align="center"
+    </a>
+    afk / offtab often . c + h !! w2i.
+    
+![Image](https://github.com/user-attachments/assets/42b8b39a-0c4a-44a9-a417-5c79556771ed)
 
-<!--
-**Sanji-000/sanji-000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Sign my atabook .
+<p></p>
+keep inmind im a slow typer and i'm the quiet type. but i'm always open to chat if i don't answer i'm offtab
+<p></p>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![Image](https://github.com/user-attachments/assets/bfe1d860-05b5-4739-9681-9cc20367df90)
