@@ -3,11 +3,10 @@
     </a>
     afk / offtab often . c + h !! w2i.
     
-![Image](https://github.com/user-attachments/assets/42b8b39a-0c4a-44a9-a417-5c79556771ed)
+
+![Image](https://github.com/user-attachments/assets/b9950adc-2883-4d28-b56b-72d58a3282ed)
 
 Sign my atabook .
 <p></p>
 keep inmind im a slow typer and i'm the quiet type. but i'm always open to chat if i don't answer i'm offtab
 <p></p>
-
-![Image](https://github.com/user-attachments/assets/bfe1d860-05b5-4739-9681-9cc20367df90)
