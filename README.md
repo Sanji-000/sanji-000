@@ -4,7 +4,7 @@
     afk / offtab often . c + h !! w2i.
     
 
-![Image](https://github.com/user-attachments/assets/b9950adc-2883-4d28-b56b-72d58a3282ed)
+![Image](https://github.com/user-attachments/assets/46df3a4a-e768-4a8b-8fdc-247b6b386029)
 
 Sign my atabook .
 <p></p>
